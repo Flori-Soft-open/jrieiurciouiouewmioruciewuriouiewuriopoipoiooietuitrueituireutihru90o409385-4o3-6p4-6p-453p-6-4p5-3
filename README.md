@@ -1,1 +1,1 @@
-# jrieiurciouiouewmioruciewuriouiewuriopoipoiooietuitrueituireutihru90o409385-4o3-6p4-6p-453p-6-4p5-3
+Hello that is my personal repo. on GitHub for me and my friends and co..
